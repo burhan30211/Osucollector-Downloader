@@ -1,0 +1,1 @@
+# Osucollector.com beatmap colel
